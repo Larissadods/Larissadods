@@ -1,9 +1,9 @@
 ## oiee ☝️
 
-me chamo Larissa 
+me chamo Larissa, e eu sou a maior fã do uia cat :33
 
-- estou estudando na [Alura](https://www.alura.com.br)
-- atualmente sigo estudando desenvolvimento de sistema (2DS)
-- utilizo esse espaço para organização e compartilhamento dos meus projetos
+- estou estudando na [Alura](https://www.alura.com.br);
+- uiiaiiuiiiiaii
+  
 
 
